@@ -1,4 +1,2 @@
 # karan
-tyjytujtyujytukj
-\
-uy6jhyyr5hbut7i456evjrtu5vehjukj7ik
+I am student of b.tech from section A.
